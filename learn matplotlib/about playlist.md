@@ -17,3 +17,7 @@ part 6: https://youtu.be/cjwlmne7de0?si=0T-M6HHP6woDL7X_
 part 7: https://youtu.be/HGRgxq8uYlA?si=Djrd1oGRqegNykRY
 
 part 8: https://youtu.be/th0vAhBp_qc?si=AiwLGRuA68zsx4tC
+
+part 9: https://youtu.be/qZKyTQPDWpQ?si=cbuxGC-2JY8Hm7bI
+
+part 10: https://youtu.be/ke3luwKA4ok?si=xTALW2n686BVRwey
