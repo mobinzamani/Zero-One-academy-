@@ -58,7 +58,7 @@ part27: https://youtu.be/iT6oeYfr4-g
 
 part28: https://youtu.be/h1VMFPMJgCw
 
-part29:
+part29: https://youtu.be/WbGpVcOk2L4?si=dYa_GqjtoIs7VPh0
 
 
 
