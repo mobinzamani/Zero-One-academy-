@@ -24,3 +24,9 @@ part 10: https://youtu.be/ke3luwKA4ok?si=xTALW2n686BVRwey
 
 part 11: 
 https://youtu.be/U6gcFywq_lE?si=T4yDTHuvBJBdbnwj
+
+part 12:
+https://youtu.be/HUbx6OalG4s?si=3ELdzLWHPStvMxGk
+
+part 13:
+https://youtu.be/EEOpVt7yaiE?si=7dAlI_wYL17jqBfz
